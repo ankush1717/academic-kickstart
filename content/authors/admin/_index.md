@@ -75,5 +75,5 @@ Fun facts:
 
 *  I can solve the Rubik's Cube in 9 seconds and was once ranked #1 in Virginia
 *  My favorite NBA team is the San Antonio Spurs and my favorite soccer team is Werder Bremen
-*  I have been to 16 concerts and counting :smile:
+*  I have been to 16 concerts and counting :smile: (some of my favorite are Post Malone, Coldplay, and Linkin Park)
 
